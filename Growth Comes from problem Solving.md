@@ -1,0 +1,3 @@
+
+Real growth and wisdom will not come from reading a thousand books because i would not have implemented any of them.Real wisdom comes from those who have solved a thousand problems .
+So search for problems to solve than take action and list down all posiible solutions i can think of, evaluate those and see if the problem is solved completely, than go and READ about htat perticular topic Mindfully and then apply that gained knowledge to solve the problem again, that is how **ACTUAL GROWTH HAPPENS**.
