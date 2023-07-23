@@ -1,0 +1,2 @@
+
+Creative insight of _any_ type — be it business strategy, an ad campaign, or computer code — requires cognitive space to emerge. It doesn’t take much daily activity before original thought is starved of the neuronal nutriments required to grow.

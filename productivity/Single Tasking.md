@@ -1,0 +1,4 @@
+It works Like magic, my productivity goes through the roof, I am able to finish tasks so quickly, and i am not tired at all mmentally..All i need to take care of is that my focus should be the same as when i am playing DOTA or watching prn.(Even if the Task is very boring)
+This single focussed playing dota is why it is so satisfying , when i haveto check phone or work in playing dota, even when DOTA is so interesting , that perticular game sucks because i was distracted. 
+So why not extend the same behaviour into WORK and every aspect of LIFE, when i am doing one thing, no matter how boring it would be always just do that.No other thoughts, just slow your mind it should not think anything else.
+Practice to bring mind again and again to the task at hand by breathing meditation practice.And also be mindful of what task currently i am forcing my Mind to be on.

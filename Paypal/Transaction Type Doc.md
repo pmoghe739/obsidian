@@ -1,0 +1,4 @@
+While going throught the video created by syam , i came to know about a link for transaction type doc which tells the character code used in paypal to denote different types of transactions.
+Like R is for credit card charge , T is for credit card reversal. The main advantage of storing it this way is that instead of storing full word like Credit Card charge we just store a single character R, since paypal deals with Millions of transactions everyday it saves a lot of space .
+
+[Link to Confluence](https://engineering.paypalcorp.com/confluence/pages/viewpage.action?spaceKey=MoneyPFIQA&title=Transaction+Type+Doc)

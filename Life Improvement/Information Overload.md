@@ -1,0 +1,8 @@
+Just sitting quietly is still better than mindlessly surfing the internet because whatever even if i learn meaningfull things , watch / read content that is self help or self improvement , i wont be able to remember most of it , the reason is i did not search it intentionally and neither will i ever revise it , you only remember what you search or read intentionally, or you do its journalling [[Journalling  - Information Overload]],
+Try to remember how many self help and improvements i have read and how many of them i still remember and follow in my life ?
+
+Instead just sit alone / quietly and meditate , thats how most of the problems are solved , problems do not get solved if we live life based on automation and mindlessly doing one thing after anathor keeping busy with work and then filling the reaming time with mindless surfing / watching youtube / playing Games thats not even entertainment because you are getting mentally tired after doing those instead of feeling refreshed.
+
+MY SUGGESTION IS WHATEVER YOU DO ,  DO IT MINDFULLY. IF YOU HAVE FREE TIME JUST MEDIDATE AND THINK ON ONE SINGLE MOST IMPORTANT CHANGE THAT WILL HAVE THE HIGHEST IMPACT IN MY LIFE AND WORK ON IT. Instead of reading 10 different things and working on None, Do 1 task and do it mindfully , even if doing entertainment involve mentally in that , do it with full concentration whether work or entertainment and also PRACTICE MINDFULL MEDITATION  everyday sometime in my life, it brings great insights.
+
+Read only 1 good thing in a Day and try to journal it here, so that can review and revise it later and expand my knowledge base.
